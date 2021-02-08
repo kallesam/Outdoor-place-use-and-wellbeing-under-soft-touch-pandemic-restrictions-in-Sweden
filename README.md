@@ -1,0 +1,1 @@
+# Outdoor-place-use-and-wellbeing-under-soft-touch-pandemic-restrictions-in-Sweden
